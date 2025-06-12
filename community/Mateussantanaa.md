@@ -59,4 +59,4 @@
 
 ---
 
-> Obrigado pela visita! Vamos construir algo incrível juntos. 🚀
+> Obrigado pela visita! Vamos construir algo incrível juntos... 🚀
